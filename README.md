@@ -1,1 +1,0 @@
-# terceroInfo_PruebaDiagnostica
